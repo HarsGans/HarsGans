@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HarsGans
+- 👋 Hi, I’m Eggor!
 - 👀 I’m interested in coding and design
 - 🌱 I’m currently learning how to be helpful to everyone
 - 💞️ I’m looking to collaborate on ?
